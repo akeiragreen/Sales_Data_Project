@@ -67,5 +67,5 @@ Want to connect or collaborate?
 
 📧 Email: akeiragreen22@gmail.com  
 🔗 LinkedIn: www.linkedin.com/in/akeira-green  
-💼 GitHub: akeiragreen
+💼 GitHub: [akeiragreen](https://github.com/akeiragreen)
 
